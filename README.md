@@ -1,1 +1,0 @@
-# Inspecci-n-SHMA
